@@ -4,4 +4,4 @@
 Under Maintenance
 
 
-(Cross Editor Was Stopped Updating And Moving To Metoer Studio)
+(Cross Editor Was DISCONTINUED And Moving To Metoer Studio)
